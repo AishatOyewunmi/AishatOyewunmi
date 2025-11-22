@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @AishatOyewunmi
 - 👀 I’m interested in ...quantitative analysis
-- 🌱 I’m currently pursing ...masters in economic and financial statistics
+- 🌱 I’m currently pursuing... master's in economic and financial statistics
 - 💞️ I’m looking to collaborate on ... improving the world 🗺 
 - 📫 How to reach me ... aishatoyewunmi@gmail.com
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ... i love everyhing about creativity and finance
+- 😄 Pronouns: ...she/her
+- ⚡ Fun fact: ... i love everything about creativity, finance, and fashon
 
 <!---
 AishatOyewunmi/AishatOyewunmi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
