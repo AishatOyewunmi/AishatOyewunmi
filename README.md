@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AishatOyewunmi
 - 👀 I’m interested in ...quantitative analysis
-- 🌱 I’m currently pursuing... master's in economic and financial statistics
+- 🌱 master's in economic and financial statistics
 - 💞️ I’m looking to collaborate on ... improving the world 🗺 
 - 📫 How to reach me ... aishatoyewunmi@gmail.com
 - 😄 Pronouns: ...she/her
